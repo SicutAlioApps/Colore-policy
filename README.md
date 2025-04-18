@@ -1,0 +1,2 @@
+# Colore-policy
+Pirvacy Policy
